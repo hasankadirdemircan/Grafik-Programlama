@@ -9,4 +9,5 @@ Sorular programlarda açıklama kısmında verilmiştir.
 <a href="https://hizliresim.com/8NY0qQ"><img src="https://i.hizliresim.com/8NY0qQ.png"></a>
 
 Ödev3 Görsel
+<a href="https://hizliresim.com/Z9J8Ak"><img src="https://i.hizliresim.com/Z9J8Ak.png"></a>
 
